@@ -51,11 +51,11 @@ __❤️‍🔥​Sacrificio y propósito__
 Sígueme y sé parte de esta comunidad de guerreros y soñadores!
 
 * Instagram:  [_@Imper1oGanador_](https://www.instagram.com/imper1oganador?igsh=MTUwcXpsaDB4cm01bg==)
-* Tiktok:
-* Youtube:
+* Tiktok: [@AngelUchiha](@ÁngelUchiha)
+* Youtube:[@zcoral](@zcoral)
 * Correo: angelcoralito777@gmail.com
 
   # Gracias por visitar Coralito777
   "No se trata de cuántas veces caes... sino de cuántas te levantas, con los ojos firmes en tu propósito".
   -- ÁngelCoral
-
+https://img.shields.io/badge/Gmail-D14836?style=for-the-badge&logo=gmail&logoColor=white
