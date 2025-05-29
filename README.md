@@ -32,12 +32,18 @@ _Todo lo que encontrarás en este sitio está pensado para motivarte, impulsarte
  
 # Reflexiones / frases a diario
 
-__🧠Reflexión: Usa el dolor como guía__
+__🧠Usa el dolor como guía__
 ** El dolor que sientes hoy puede ser esa fuerza que te guié mañana. Como Itachi, a veces el sufrimiento forma parte de un camino más grande. Lo importante es no perder de tu vista tu propósito.
 
+<img src='https://img.desmotivaciones.es/201403/dolor-naruto-desmotivaciones.jpg' width='200' />
 
 
-
-__❤️‍🔥​ Reflexión: Sacrificio y propósito__
+__❤️‍🔥​Sacrificio y propósito__
 ** Itachi no era perfecto, pero eligió proteger lo que amaba a costa de sí mismo. En la vida real, muchas veces tomamos decisiones difíciles por el bienestar de los demás. ¿Cuál es tu propósito en la vida?
   
+<img src='https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTJhKIAj-QzxHGP5x021pHTbbieIZLgw4HXMA&s' width='200px' />
+
+# 📽️​ Contenido Multimedia 
+
+[AMV ITACHI](https://www.youtube.com/watch?v=WKOXMRJ_Sb0&list=RDWKOXMRJ_Sb0&start_radio=1)
+<img src='https://github.com/user-attachments/assets/2e30d2b6-36c0-4d7c-a0ae-f9dc4a606f71' width='300px' />
