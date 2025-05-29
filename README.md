@@ -46,3 +46,8 @@ __❤️‍🔥​Sacrificio y propósito__
 # 📽️​ Contenido Multimedia 
 <a href='https://www.youtube.com/watch?v=WKOXMRJ_Sb0&list=RDWKOXMRJ_Sb0&start_radio=1' target='_blank'> 
 <img src='https://github.com/user-attachments/assets/2e30d2b6-36c0-4d7c-a0ae-f9dc4a606f71' width='300px' />
+
+# 📲​ Redes sociales y Contacto 
+Sígueme y sé parte de esta comunidad de guerreros y soñadores!
+
+**  <img src='' />
