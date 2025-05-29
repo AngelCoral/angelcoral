@@ -50,4 +50,11 @@ __❤️‍🔥​Sacrificio y propósito__
 # 📲​ Redes sociales y Contacto 
 Sígueme y sé parte de esta comunidad de guerreros y soñadores!
 
-**  <img src='' />
+* Instagram:  [_@Imper1oGanador_](https://www.instagram.com/imper1oganador?igsh=MTUwcXpsaDB4cm01bg==)
+* Tiktok:
+* Youtube:
+
+  # Gracias por visitar Coralito777
+  "No se trata de cuántas veces caes... sino de cuántas te levantas, con los ojos firmes en tu propósito".
+  -- ÁngelCoral
+
