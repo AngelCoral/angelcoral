@@ -44,6 +44,5 @@ __❤️‍🔥​Sacrificio y propósito__
 <img src='https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTJhKIAj-QzxHGP5x021pHTbbieIZLgw4HXMA&s' width='200px' />
 
 # 📽️​ Contenido Multimedia 
-
-https://www.youtube.com/watch?v=WKOXMRJ_Sb0&list=RDWKOXMRJ_Sb0&start_radio=1
+<a href='https://www.youtube.com/watch?v=WKOXMRJ_Sb0&list=RDWKOXMRJ_Sb0&start_radio=1' target='_blank'> 
 <img src='https://github.com/user-attachments/assets/2e30d2b6-36c0-4d7c-a0ae-f9dc4a606f71' width='300px' />
